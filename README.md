@@ -1,2 +1,0 @@
-# kazama-
-invalid viod
